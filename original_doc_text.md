@@ -27,16 +27,16 @@ Research, Study Abroad, Internships
 
 Most beneficial resources
 
-Faculty Mentorship
+Faculty Mentorship - 
 "If I couldn't have dropped in and talked to someone, I never would've stayed."
 "It is very helpful to talk through my goals, problems, and what's going on in my life in general."
 
-Study Room/Computer Lab
+Study Room/Computer Lab - 
 "I feel uncomfortable in the library. In MASP I know everyone so I can just study."
 "There's always someone around to help you out."
 "I always have a place to feel welcome."
 
-Participation Scholarships
+Participation Scholarships - 
 "The scholarship is definitely important in my academic success. It lessens my stress about finances and allows me to reallocate my thoughts to my studies!"
 
 All information in text and graphics is based on student interviews, survey data, and university records.
